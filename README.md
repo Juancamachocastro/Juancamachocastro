@@ -1,6 +1,6 @@
 # Juan Esteban Camacho
 
-Studient
+Studient - Industrial Engineering
 
 Universidad de La Sabana - Chía
 
