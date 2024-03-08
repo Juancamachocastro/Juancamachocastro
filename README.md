@@ -11,7 +11,7 @@ juancamacas@unisabana.edu.co
 - Mathematics
 - Video games
 - Astronomy
-- Learning english
+- Learning English
   
 ## Contact
 
